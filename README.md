@@ -1,1 +1,2 @@
 # jajecznica-
+OD WOJTKA PLONKI POMOC UZYSKANA
